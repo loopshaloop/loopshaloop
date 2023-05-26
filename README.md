@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @loopshaloop
 - 👀 I’m interested in programming(obviously), drawing, gaming, fitness, music and reading books.
-- 🌱 I’m currently learning at highschool.
+- 🌱 I’m currently learning at high school.
 - 💞️ I’m looking to collaborate on nothing.
 - 📫 How to reach me:
 Email: ohad271005@gmail.com
